@@ -1,1 +1,2 @@
-# roseijt4-gmail.com
+# roseijt4gmail.com
+Scott Mally
